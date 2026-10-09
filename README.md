@@ -368,7 +368,7 @@ Screenshots are available in the \*\*screenshots/\*\* folder.
 
 
 
-\*\*Srinivas\*\*
+\*\*Vyshnavi Prathipati\*\*
 
 
 
