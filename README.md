@@ -378,13 +378,13 @@ Aspiring Cloud Engineer | Software Engineer | Data Science Enthusiast
 
 LinkedIn:
 
-https://www.linkedin.com/in/jsrinivas12/
+https://www.linkedin.com/in/vyshnavi-prathipati/
 
 
 
 GitHub:
 
-https://github.com/srini21448
+https://github.com/vyshnaviprathipati9
 
 
 
